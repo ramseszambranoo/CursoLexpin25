@@ -1,2 +1,0 @@
-# CursoLexpin25
- ARCHIVOS CURSO 25
